@@ -1,2 +1,2 @@
 # ODS
-Desenvolvimento Sustentável- Energia limpa
+Desenvolvimento Sustentável- Educação de Qualidade
